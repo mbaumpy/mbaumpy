@@ -1,0 +1,3 @@
+- 👋 Hola!, soy @mbaumpy
+- 👀 Interesado en información sobre Transformacion Digital,Software's para ser Implementador e Integrador ERP/CRM | Documentación /Proyetos y Empleos Freelancer en Oracle Form Report Apex DevOps
+- 📫 contactame en mbaumpy@outlook.com | mbaumpy@gmail.com
